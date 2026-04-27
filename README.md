@@ -1,4 +1,4 @@
-After Dark — For Two
+**After Dark — For Two**
 A private intimate game for couples
 
 Getting Started
